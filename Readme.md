@@ -1,4 +1,4 @@
-__22 EUROS, EL SUELDO MENSUAL DE LA CULTURA__
+22 euros, el sueldo mensual de la cultura
 =====
 *_La industria cerró 2015 con un ligero repunte pese a descender un 29% en ocho años._*
 ----
