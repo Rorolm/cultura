@@ -1,6 +1,6 @@
 22 euros, el sueldo mensual de la cultura
 =====
-*_La industria cerró 2015 con un ligero repunte pese a descender un 29% en ocho años._*
+La industria cerró 2015 con un ligero repunte pese a descender un 29% en ocho años.
 ----
 Hoy, como cada día, ha entrado a trabajar a las nueve de la mañana y no ha parado para comer hasta las dos. En el transcurso de esas cinco horas, en España (2015) comenzaron 51 conciertos de música popular y ocho de música clásica. 45 libros se inscribieron en el ISBN, se proyectó una película en el cine y se representaron 27 obras de teatro. Si en menos de una jornada laboral podemos deleitarnos con tanta oferta cultural, ¿de qué no podremos disfrutar en un año?
 
